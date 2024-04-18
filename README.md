@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on web development and software development
 - 📫 How to reach me
   - gmail:donaldstevet@gamil.com
-  - LinkedIn](https://www.linkedin.com/in/donald-steve-tene-541344261)
+  - [LinkedIn](https://www.linkedin.com/in/donald-steve-tene-541344261)
 - ⚡ Fun fact:i love watching documentaies, football, news, and listening to music.
 
 <!---
